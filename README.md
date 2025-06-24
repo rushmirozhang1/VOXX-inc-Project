@@ -19,3 +19,5 @@ Buying WL/BOOK PASS from secondary?
  Do it before Monday ends.
 
 The beginning is written on-chain. Be there to mark it.
+
+✅ Join Discord: https://discord.gg/45HWjuJv9U
