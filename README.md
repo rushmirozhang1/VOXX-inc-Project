@@ -1,2 +1,21 @@
-# VOXX-inc-Project
-June 25th is Coming!(TOMORROW)   Don't miss out on the opportunity to be a part of this groundbreaking project. Make sure to mark your calendars for June 25th and get ready to experience the thrill of VOXXinc's minting event. With its exceptional artwork, innovative approach, and strong community backing, VOXXinc is poised to take us to the next.🔥
+📢 VOXX MINT INFO
+
+📍 June 25th – 7PM UTC on Tradeport
+🧬 Supply – 3000 NFTs
+
+💰 Mint Structure:
+• OGs – FREE (1 max)
+• WL1 – 1 SUI (3 max)
+• WL2 – 2 SUI (2 max)
+• Public – 3 SUI
+
+⏳ Mint Phases:
+• 7–8PM UTC: OGs + WL1 (WL PASS holders)
+• 8–9PM UTC: WL2 (Giveaways + BOOK PASS holders)
+• 9PM+ UTC: Public
+
+🚨 Snapshot – Late monday (June 23rd)
+Buying WL/BOOK PASS from secondary?
+ Do it before Monday ends.
+
+The beginning is written on-chain. Be there to mark it.
